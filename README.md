@@ -1,1 +1,1 @@
-# AZAC---Monthy-Contest---January-Edition
+# AZAC---Monthy-Contest
